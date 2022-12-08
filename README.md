@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ananyarai7667
-- 👀 I’m interested in ... Html css 
+- 👀 I’m interested in ... Html css c 
 - 🌱 I’m currently learning ..BTech(cse).
 - 💞️ I’m looking to collaborate on ... project 
 - 📫 How to reach me .. teacher.
